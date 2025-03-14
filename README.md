@@ -10,4 +10,4 @@
 
 📫 How to reach me ... srikrishnalaxetti@gmail.com
 
-   LinkedIN : https://www.linkedin.com/in/srikrishnalaxetti
+🔗 LinkedIN : https://www.linkedin.com/in/srikrishnalaxetti
