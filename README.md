@@ -1,4 +1,4 @@
-# About-Myself
+# Introduction About ME :
 
 👋 Hi, I’m Srikrishna Laxetti
 
@@ -11,3 +11,10 @@
 📫 How to reach me ... srikrishnalaxetti@gmail.com
 
 🔗 LinkedIN : https://www.linkedin.com/in/srikrishnalaxetti
+
+🔗 Instagram : https://www.instagram.com/_kittu25__
+
+🔗 Twitter : https://x.com/_kittu25__
+
+
+
